@@ -2,6 +2,7 @@
 - 👀 I’m interested in " FULL STACK "
 - 🌱 I’m currently learning " MERN STACK "
 - 💞️ I’m looking to collaborate on { FRONT-END DEVELOPMENT"
+- 📧 How to reach me amabubakar121@gmail.com
 - 📫 How to reach me [...](https://www.facebook.com/amabubakar11/)
 
 <!---

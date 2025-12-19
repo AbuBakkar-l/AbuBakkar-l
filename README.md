@@ -50,7 +50,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: **amabubakar121@gmail.com**
-- 🌐 Facebook: [Click here](https://www.facebook.com/amabubakar11)
+- 🌐 LinkedIn: [Click here](www.linkedin.com/in/abu-bakkar121)
 
 ---
 
